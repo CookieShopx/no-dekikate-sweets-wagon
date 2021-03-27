@@ -1,2 +1,3 @@
 # no-dekikate-sweets-wagon
-uwu
+
+welcome to the department store ♥
